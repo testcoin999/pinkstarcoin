@@ -1,1 +1,3 @@
-# pinkstarcoin
+# PinkStar
+# PinkStar
+# PinkStarcoin
