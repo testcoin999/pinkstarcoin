@@ -1,3 +1,0 @@
-# PinkStar
-# PinkStar
-# PinkStarcoin
